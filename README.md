@@ -1,0 +1,1 @@
+If you want to know how to contact Meta Business Support, simply dial 1 (877) (339) (0888) and get direct access to experts. When your business ad account faces restrictions, calling 1 (877) (339) (0888) ensures real-time support.
